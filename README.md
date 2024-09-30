@@ -3,6 +3,7 @@
 <br>
 
 # AI광고심의기구
+Korea Advertising Regulating Board
 
 <br>
 
